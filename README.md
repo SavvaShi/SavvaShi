@@ -1,4 +1,5 @@
 - something in the wayy
+- best friendo is my buddy
 - 
 - 👋 Hi, I’m @SavvaShi
 - 👀 I’m interested in ...
